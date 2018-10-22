@@ -1,3 +1,6 @@
+---
+---
+
 # RECOGNIZING REAR ADMIRAL CHARLES HAMILTON
 ## `00db7acd8cfeaf13f0debd3a14d690d0`
 `Mr. LOTT — 7 February 2007`

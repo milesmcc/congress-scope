@@ -1,3 +1,6 @@
+---
+---
+
 # WAR DESTRUCTIVE OF NATIONAL AGENDA
 ## `2aad368ff327fa5d86aafdc8bc999b1c`
 `Mr. KUCINICH — 8 November 2007`

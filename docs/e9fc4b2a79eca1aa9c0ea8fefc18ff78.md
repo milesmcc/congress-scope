@@ -1,3 +1,6 @@
+---
+---
+
 # COMPARISON AND HISTORY TEACH US A LOT
 ## `e9fc4b2a79eca1aa9c0ea8fefc18ff78`
 `Mr. HALL of Texas — 12 July 2007`

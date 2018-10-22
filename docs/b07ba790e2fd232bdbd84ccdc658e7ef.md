@@ -1,3 +1,6 @@
+---
+---
+
 # HONORING VICTIMS OF FORT HOOD ATTACK
 ## `b07ba790e2fd232bdbd84ccdc658e7ef`
 `Mr. McDERMOTT — 6 November 2009`

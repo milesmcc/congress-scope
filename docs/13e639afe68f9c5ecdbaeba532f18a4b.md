@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `13e639afe68f9c5ecdbaeba532f18a4b`
 `Mr. WICKER — 14 February 2007`

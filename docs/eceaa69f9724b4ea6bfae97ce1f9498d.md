@@ -1,3 +1,6 @@
+---
+---
+
 # DEPARTMENT OF DEFENSE APPROPRIATIONS ACT, 2010
 ## `eceaa69f9724b4ea6bfae97ce1f9498d`
 `Mr. LUGAR — 18 December 2009`

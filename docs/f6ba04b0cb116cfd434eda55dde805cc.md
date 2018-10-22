@@ -1,3 +1,6 @@
+---
+---
+
 # TAX COLLECTION RESPONSIBILITY ACT OF 2007
 ## `f6ba04b0cb116cfd434eda55dde805cc`
 `Mr. POMEROY — 10 October 2007`

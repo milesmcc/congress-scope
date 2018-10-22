@@ -1,3 +1,6 @@
+---
+---
+
 # FORT HOOD ATTACK
 ## `83f5e053e01ccb26cbdccdc707f2bf2c`
 `Mr. FEINGOLD — 17 November 2009`

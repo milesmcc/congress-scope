@@ -1,3 +1,6 @@
+---
+---
+
 # BLUE DOG COALITION
 ## `d2529eb3e348bc70eeb9e19b8ec6dcdc`
 `Mr. COSTA — 22 January 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # AMERICAN CREDIBILITY, POLAND AND MISSILE DEFENSE
 ## `a697ab5ffb4c718ee06eebbbe7f76d1b`
 `Mr. POE of Texas — 8 October 2009`

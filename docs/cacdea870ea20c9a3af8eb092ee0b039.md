@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `cacdea870ea20c9a3af8eb092ee0b039`
 `Mr. KING of New York — 14 February 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # STATEMENTS ON INTRODUCED BILLS AND JOINT RESOLUTIONS
 ## `eaefde2e87fdf50f41ac46b0c0bb156c`
 `Mr. BAUCUS — 10 January 2007`

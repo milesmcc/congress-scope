@@ -1,3 +1,6 @@
+---
+---
+
 # IN MEMORIAM OF SENIOR AIRMAN DANIEL MILLER, JR. OF GALESBURG, IL
 ## `3485b04ed5cbcbc3d8d7b0e7aa9eabdf`
 `Mr. HARE — 16 January 2007`

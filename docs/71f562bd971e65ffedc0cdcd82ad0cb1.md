@@ -1,3 +1,6 @@
+---
+---
+
 # FRESHMEN DEMOCRATS PROMOTE ACCOUNTABILITY AND OVERSIGHT
 ## `71f562bd971e65ffedc0cdcd82ad0cb1`
 `Mr. WELCH of Vermont — 22 March 2007`

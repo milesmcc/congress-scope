@@ -1,3 +1,6 @@
+---
+---
+
 # EARMARK DECLARATION
 ## `d5abab59620d87efcdecda74312cac53`
 `Mr. SMITH of Texas — 21 May 2008`

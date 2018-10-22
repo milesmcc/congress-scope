@@ -1,3 +1,6 @@
+---
+---
+
 # AMERICAN INVOLVEMENT IN AFGHANISTAN
 ## `fe9c2e8bf43acdbe8daba01cd0bdbf16`
 `Mr. JONES — 10 March 2010`

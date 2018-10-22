@@ -1,3 +1,6 @@
+---
+---
+
 # PRESIDENT BUSH'S VETO
 ## `3478a3fae3b2ffcaeaf98585c08bfbce`
 `Mr. WALZ of Minnesota — 2 May 2007`

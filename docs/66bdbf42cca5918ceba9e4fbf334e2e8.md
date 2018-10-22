@@ -1,3 +1,6 @@
+---
+---
+
 # VETERANS' BENEFITS ENHANCEMENT ACT
 ## `66bdbf42cca5918ceba9e4fbf334e2e8`
 `Mr. McCONNELL — 22 April 2008`

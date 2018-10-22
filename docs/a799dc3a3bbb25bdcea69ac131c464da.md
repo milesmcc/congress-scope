@@ -1,3 +1,6 @@
+---
+---
+
 # THE SECURE RURAL SCHOOLS AND COMMUNITY SELF-DETERMINATION ACT
 ## `a799dc3a3bbb25bdcea69ac131c464da`
 `Mr. HASTINGS of Washington — 12 February 2007`

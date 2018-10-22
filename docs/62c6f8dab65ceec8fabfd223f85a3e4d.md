@@ -1,3 +1,6 @@
+---
+---
+
 # KURDISTAN IS MODEL FOR IRAQ
 ## `62c6f8dab65ceec8fabfd223f85a3e4d`
 `Mr. WILSON of South Carolina — 20 November 2008`

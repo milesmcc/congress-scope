@@ -1,3 +1,6 @@
+---
+---
+
 # HONORING SERGEANT JACOB SCHMUECKER
 ## `abdf8c6d9ddd8fde3085783a0f3d0b2b`
 `Mr. FORTENBERRY — 4 August 2007`

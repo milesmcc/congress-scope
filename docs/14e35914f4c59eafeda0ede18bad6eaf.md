@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN WAR POWERS RESOLUTION
 ## `14e35914f4c59eafeda0ede18bad6eaf`
 `Mr. TANNER — 10 March 2010`

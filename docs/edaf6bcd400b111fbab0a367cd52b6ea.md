@@ -1,3 +1,6 @@
+---
+---
+
 # COMMUNIST CHINA AND CIFUS: ``DROPPING THE SHARK''
 ## `edaf6bcd400b111fbab0a367cd52b6ea`
 `Mr. McCOTTER — 3 October 2007`

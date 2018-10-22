@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `ff88ef74e6d7e1ea59b34aa6aadbc504`
 `Mr. GENE GREEN of Texas — 13 February 2007`

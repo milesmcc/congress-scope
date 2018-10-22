@@ -1,3 +1,6 @@
+---
+---
+
 # INDONESIAN PRESIDENTIAL ELECTION
 ## `32fe7a58eeee63b0c888ec6ebad2fe86`
 `Mr. BOND — 10 July 2009`

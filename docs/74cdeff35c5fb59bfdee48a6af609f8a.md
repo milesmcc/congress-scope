@@ -1,3 +1,6 @@
+---
+---
+
 # ROLE OF AMERICAN DIPLOMACY
 ## `74cdeff35c5fb59bfdee48a6af609f8a`
 `Mr. KYL — 1 February 2007`

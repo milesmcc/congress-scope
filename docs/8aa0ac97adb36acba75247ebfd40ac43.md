@@ -1,3 +1,6 @@
+---
+---
+
 # IN MEMORIAM OF ARMY SERGEANT JAMES AKIN
 ## `8aa0ac97adb36acba75247ebfd40ac43`
 `Mr. UDALL of New Mexico — 11 June 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # DEMOCRATIC BLUE DOG COALITION
 ## `f2f6d8c996b1bf5bca61572c2cfa2daa`
 `Mr. LINCOLN DAVIS of Tennessee — 22 May 2007`

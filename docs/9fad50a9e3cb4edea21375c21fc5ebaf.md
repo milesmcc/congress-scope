@@ -1,3 +1,6 @@
+---
+---
+
 # RESPONSIBLE REDEPLOYMENT FROM IRAQ ACT
 ## `9fad50a9e3cb4edea21375c21fc5ebaf`
 `Mr. MAHONEY of Florida — 12 July 2007`

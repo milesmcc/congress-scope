@@ -1,3 +1,6 @@
+---
+---
+
 # GEORGIA AND UKRAINE NATO MEMBERSHIP
 ## `78e703dbae0c20b88bfce84fde7b10ae`
 `Mr. GALLEGLY — 1 April 2008`

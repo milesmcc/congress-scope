@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN
 ## `3ffdec13d48efbd3c5dc6be71d38819d`
 `Mr. McCAIN — 16 September 2009`

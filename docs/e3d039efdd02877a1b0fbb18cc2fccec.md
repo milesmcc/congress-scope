@@ -1,3 +1,6 @@
+---
+---
+
 # JOSHUA OMVIG VETERANS SUICIDE PREVENTION ACT
 ## `e3d039efdd02877a1b0fbb18cc2fccec`
 `Mr. RAMSTAD — 21 March 2007`

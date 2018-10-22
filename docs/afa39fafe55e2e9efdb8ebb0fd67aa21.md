@@ -1,3 +1,6 @@
+---
+---
+
 # FIND WAYS TO COME TOGETHER ON IRAQ
 ## `afa39fafe55e2e9efdb8ebb0fd67aa21`
 `Mr. BISHOP of New York — 6 June 2007`

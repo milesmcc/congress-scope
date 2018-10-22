@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN REPORT
 ## `f1c0c047ceecb5af89accfbdc834c428`
 `Mrs. FEINSTEIN — 29 July 2010`

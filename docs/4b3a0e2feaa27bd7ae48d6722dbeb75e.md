@@ -1,3 +1,6 @@
+---
+---
+
 # NO PERMANENT BASES IN IRAQ
 ## `4b3a0e2feaa27bd7ae48d6722dbeb75e`
 `Ms. JACKSON-LEE of Texas — 25 July 2007`

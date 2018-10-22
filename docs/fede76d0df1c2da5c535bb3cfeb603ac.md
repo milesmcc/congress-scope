@@ -1,3 +1,6 @@
+---
+---
+
 # FUTURE INVOLVEMENT IN AFGHANISTAN
 ## `fede76d0df1c2da5c535bb3cfeb603ac`
 `Mr. McGOVERN — 18 November 2009`

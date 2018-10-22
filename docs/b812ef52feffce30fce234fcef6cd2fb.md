@@ -1,3 +1,6 @@
+---
+---
+
 # VICE PRESIDENT IS IN THE EXECUTIVE BRANCH
 ## `b812ef52feffce30fce234fcef6cd2fb`
 `Mr. EMANUEL — 26 June 2007`

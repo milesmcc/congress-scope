@@ -1,3 +1,6 @@
+---
+---
+
 # IN MEMORY OF SERGEANT FIRST CLASS JAMES DOSTER
 ## `6bfb0da341b67d7dc9a2b1ec6d3ada87`
 `Mr. ROSS — 4 October 2007`

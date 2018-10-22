@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `5fd77bebe06fb2fae273f0f9b14ae6ab`
 `Mr. JONES of North Carolina — 14 February 2007`

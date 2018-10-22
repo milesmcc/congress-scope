@@ -1,3 +1,6 @@
+---
+---
+
 # BLUE DOG COALITION
 ## `ad9838eafcd71ff958eba8a9dde5724d`
 `Mr. PATRICK MURPHY of Pennsylvania — 22 January 2007`

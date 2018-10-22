@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `4cbe7041a8d7dcf6ed1eb43fc394ca6a`
 `Mr. STEARNS — 16 February 2007`

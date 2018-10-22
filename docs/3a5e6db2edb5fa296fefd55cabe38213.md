@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO SENATORS
 ## `3a5e6db2edb5fa296fefd55cabe38213`
 `Mr. KERRY — 1 October 2008`

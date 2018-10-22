@@ -1,3 +1,6 @@
+---
+---
+
 # AFFORDABLE HEALTH CARE FOR AMERICA ACT
 ## `cc4118fb9ddaac7a6e4c79f9fc7f85d7`
 `Mr. ETHERIDGE — 7 November 2009`

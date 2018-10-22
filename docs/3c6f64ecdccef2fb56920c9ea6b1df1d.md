@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO TOM LANTOS
 ## `3c6f64ecdccef2fb56920c9ea6b1df1d`
 `Mr. HATCH — 11 February 2008`

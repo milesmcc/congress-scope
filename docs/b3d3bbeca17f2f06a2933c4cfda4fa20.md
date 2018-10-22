@@ -1,3 +1,6 @@
+---
+---
+
 # AMERICAN PEOPLE HAVE SPOKEN ON IRAQ
 ## `b3d3bbeca17f2f06a2933c4cfda4fa20`
 `Mr. CUMMINGS — 11 January 2007`

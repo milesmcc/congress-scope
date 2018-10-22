@@ -1,3 +1,6 @@
+---
+---
+
 # STOPPING TERRORISM OVERSEAS
 ## `8b1846ad9ffd30b14ac4febcad73d7cf`
 `Mr. WILSON of South Carolina — 23 May 2007`

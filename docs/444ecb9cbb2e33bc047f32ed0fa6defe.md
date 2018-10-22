@@ -1,3 +1,6 @@
+---
+---
+
 # UNANTICIPATED GOOD RESULTS (WHEN WE LEAVE)
 ## `444ecb9cbb2e33bc047f32ed0fa6defe`
 `Mr. PAUL — 6 June 2007`

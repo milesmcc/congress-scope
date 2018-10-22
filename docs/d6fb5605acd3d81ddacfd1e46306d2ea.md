@@ -1,3 +1,6 @@
+---
+---
+
 # REPUBLICAN STUDY COMMITTEE
 ## `d6fb5605acd3d81ddacfd1e46306d2ea`
 `Mr. CARTER — 23 May 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `b41f879c9e49ebfbf65ed0dd1fb4efea`
 `Mr. SMITH of Washington — 15 February 2007`

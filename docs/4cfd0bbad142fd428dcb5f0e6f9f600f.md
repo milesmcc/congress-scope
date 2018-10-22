@@ -1,3 +1,6 @@
+---
+---
+
 # IN HONOR OF SERGEANT BRUCE HORNER, UNITED STATES ARMY
 ## `4cfd0bbad142fd428dcb5f0e6f9f600f`
 `Ms. GRANGER — 29 June 2007`

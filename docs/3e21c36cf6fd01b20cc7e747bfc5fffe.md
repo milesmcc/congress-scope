@@ -1,3 +1,6 @@
+---
+---
+
 # ARMENIAN RESOLUTION
 ## `3e21c36cf6fd01b20cc7e747bfc5fffe`
 `Mr. WARNER — 18 October 2007`

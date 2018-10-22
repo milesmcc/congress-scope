@@ -1,3 +1,6 @@
+---
+---
+
 # DESERT RAT
 ## `bdedccfcc9fd363efe2ac859eade8e31`
 `Mr. POE of Texas — 18 November 2009`

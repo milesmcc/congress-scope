@@ -1,3 +1,6 @@
+---
+---
+
 # FUTURE INVOLVEMENT IN AFGHANISTAN
 ## `f2dcf3fe30b3e54b8afb1cfc9af05436`
 `Mr. PAUL — 18 November 2009`

@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO AMBASSADOR ANNE PATTERSON
 ## `24462de126439aedafdadcbd88afa5a0`
 `Mr. KAUFMAN — 2 March 2010`

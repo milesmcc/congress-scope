@@ -1,3 +1,6 @@
+---
+---
+
 # TALIBAN RESURGENCE IN PAKISTAN
 ## `d304dc0ca67fdcc2ccf709e8e994cbf7`
 `Mr. PALLONE — 22 January 2007`

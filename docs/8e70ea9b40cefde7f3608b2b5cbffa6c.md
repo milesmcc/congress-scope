@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `8e70ea9b40cefde7f3608b2b5cbffa6c`
 `Mr. HUNTER — 13 February 2007`

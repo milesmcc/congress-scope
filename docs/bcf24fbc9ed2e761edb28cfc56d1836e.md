@@ -1,3 +1,6 @@
+---
+---
+
 # TIMES SQUARE BOMBING ATTEMPT
 ## `bcf24fbc9ed2e761edb28cfc56d1836e`
 `Mr. REID — 7 May 2010`

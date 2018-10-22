@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN
 ## `8ffbfcd6719586a5dca1ffb21f3db2c4`
 `Mr. JONES — 19 July 2010`

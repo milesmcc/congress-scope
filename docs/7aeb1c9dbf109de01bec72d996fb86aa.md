@@ -1,3 +1,6 @@
+---
+---
+
 # APRIL 29, 2009: MEDIA SHOW DOUBLE STANDARD IN TEA PARTY COVERAGE
 ## `7aeb1c9dbf109de01bec72d996fb86aa`
 `Mr. SMITH of Texas — 29 April 2009`

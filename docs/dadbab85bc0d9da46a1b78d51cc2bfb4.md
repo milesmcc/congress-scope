@@ -1,3 +1,6 @@
+---
+---
+
 # EMERGENCY ECONOMIC STABILIZATION ACT OF 2008
 ## `dadbab85bc0d9da46a1b78d51cc2bfb4`
 `Mr. HUNTER — 29 September 2008`

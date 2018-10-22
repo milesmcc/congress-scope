@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO LT. COL. D.B. RICHWINE, JR.
 ## `ec8dacaff71a3b72229e49da2b33a6da`
 `Mr. CALVERT — 5 January 2007`

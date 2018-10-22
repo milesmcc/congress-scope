@@ -1,3 +1,6 @@
+---
+---
+
 # KYRGYZSTAN
 ## `abb6a8cadf9c469f5f1140ef8ad21abc`
 `Mr. KAUFMAN — 15 July 2010`

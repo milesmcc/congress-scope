@@ -1,3 +1,6 @@
+---
+---
+
 # AUTHORITY FOR COMMITTEES TO MEET
 ## `63596df6aeea74e8ed5db0c132abffce`
 `Mr. KENNEDY — 11 January 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # OPPOSING THE PRESIDENT'S PLAN FOR IRAQ
 ## `5bfa44965b0cceab7aecef0666b178af`
 `Mr. BISHOP of New York — 11 January 2007`

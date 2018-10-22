@@ -1,3 +1,6 @@
+---
+---
+
 # GLOBAL WARMING
 ## `e265693894ab7cae2af1e6cc1aeeda9a`
 `Mr. INHOFE — 18 November 2009`

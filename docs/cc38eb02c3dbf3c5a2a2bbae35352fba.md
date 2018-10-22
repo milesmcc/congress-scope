@@ -1,3 +1,6 @@
+---
+---
+
 # SEED DEMOCRACY IN CUBA
 ## `cc38eb02c3dbf3c5a2a2bbae35352fba`
 `Mr. McDERMOTT — 18 January 2007`

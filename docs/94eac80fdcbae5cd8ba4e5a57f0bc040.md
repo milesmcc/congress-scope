@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO COMMANDER JERRY MIRANDA, USN
 ## `94eac80fdcbae5cd8ba4e5a57f0bc040`
 `Mr. COURTNEY — 24 September 2008`

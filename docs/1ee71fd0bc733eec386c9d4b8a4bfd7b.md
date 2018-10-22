@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN WAR POWERS RESOLUTION
 ## `1ee71fd0bc733eec386c9d4b8a4bfd7b`
 `Mr. FALEOMAVAEGA — 10 March 2010`

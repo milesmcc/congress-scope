@@ -1,3 +1,6 @@
+---
+---
+
 # PAYING TRIBUTE TO LANCE CORPORAL BUDD M. COTE
 ## `bdb8c6da23e33d1dfb913fbe4aac571c`
 `Mr. PORTER — 6 February 2007`

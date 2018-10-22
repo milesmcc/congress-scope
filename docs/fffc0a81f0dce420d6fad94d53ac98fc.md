@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN WAR POWERS RESOLUTION
 ## `fffc0a81f0dce420d6fad94d53ac98fc`
 `Mr. NADLER of New York — 10 March 2010`

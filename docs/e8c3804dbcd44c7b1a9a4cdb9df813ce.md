@@ -1,3 +1,6 @@
+---
+---
+
 # NAFTA AND THE DRUG TRADE
 ## `e8c3804dbcd44c7b1a9a4cdb9df813ce`
 `Ms. KAPTUR — 23 January 2007`

@@ -1,3 +1,6 @@
+---
+---
+
 # HONORING LIEUTENANT MICHAEL P. MURPHY
 ## `fddab99ff86bc35232fbb3ea584fc47f`
 `Mr. BISHOP of New York — 29 October 2007`

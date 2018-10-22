@@ -1,3 +1,6 @@
+---
+---
+
 # FAIR MINIMUM WAGE ACT OF 2007
 ## `b974bcccd8ba7ec3c4d532d9dcce3f93`
 `Mr. KENNEDY — 25 January 2007`

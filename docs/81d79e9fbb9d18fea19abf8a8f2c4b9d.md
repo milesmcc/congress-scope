@@ -1,3 +1,6 @@
+---
+---
+
 # OSCE PARLIMENTARY ASSEMBLY SESSION IN OSLO
 ## `81d79e9fbb9d18fea19abf8a8f2c4b9d`
 `Mr. CARDIN — 15 July 2010`

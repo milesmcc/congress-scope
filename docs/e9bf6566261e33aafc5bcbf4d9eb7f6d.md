@@ -1,3 +1,6 @@
+---
+---
+
 # IN HONOR OF COLONEL RAYMOND ANTHONY CELESTE, JR.
 ## `e9bf6566261e33aafc5bcbf4d9eb7f6d`
 `Ms. GRANGER — 9 December 2008`

@@ -1,3 +1,6 @@
+---
+---
+
 # TRIBUTE TO ST. JOHN'S UNITED CHURCH OF CHRIST
 ## `121838a3cdd7f1cebafa3fc4edbaf14b`
 `Mr. SHIMKUS — 27 September 2008`

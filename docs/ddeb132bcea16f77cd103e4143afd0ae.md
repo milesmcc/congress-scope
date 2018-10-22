@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ WAR RESOLUTION
 ## `ddeb132bcea16f77cd103e4143afd0ae`
 `Mr. BOSWELL — 13 February 2007`

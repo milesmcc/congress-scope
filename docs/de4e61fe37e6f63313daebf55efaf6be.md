@@ -1,3 +1,6 @@
+---
+---
+
 # IN HONOR OF THE 56TH STRYKER BRIGADE COMBAT TEAM
 ## `de4e61fe37e6f63313daebf55efaf6be`
 `Mr. THOMPSON of Pennsylvania — 13 October 2009`

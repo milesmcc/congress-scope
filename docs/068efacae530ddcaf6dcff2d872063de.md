@@ -1,3 +1,6 @@
+---
+---
+
 # THE COLLEGE COST REDUCTION ACT
 ## `068efacae530ddcaf6dcff2d872063de`
 `Mrs. LINCOLN — 17 September 2007`

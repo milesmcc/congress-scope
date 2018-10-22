@@ -1,3 +1,6 @@
+---
+---
+
 # Congressional Record Index
 This website provides a temporary interface for accessing Congressional Record search results.
 To find a particular post, use `Cmd+F` and search for either its title or its ID.

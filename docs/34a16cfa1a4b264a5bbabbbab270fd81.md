@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN WAR POWERS RESOLUTION
 ## `34a16cfa1a4b264a5bbabbbab270fd81`
 `Mr. JONES — 15 March 2010`

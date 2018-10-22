@@ -1,3 +1,6 @@
+---
+---
+
 # EMERGENCY ECONOMIC STABILIZATION ACT OF 2008
 ## `f4ef4a8ddead75c0af18ebbaaafe2e24`
 `Mr. LaTOURETTE — 3 October 2008`

@@ -1,3 +1,6 @@
+---
+---
+
 # AFGHANISTAN WAR POWERS RESOLUTION
 ## `9bbebdb90ab3a8f85f2ced72d740b1c6`
 `Mr. DAVIS of Illinois — 10 March 2010`

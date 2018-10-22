@@ -1,3 +1,6 @@
+---
+---
+
 # FAIR MINIMUM WAGE ACT OF 2007
 ## `a82db0410d6dabe5cd8bfc736d8cdc77`
 `Mr. SESSIONS — 25 January 2007`

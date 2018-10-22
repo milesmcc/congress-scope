@@ -1,3 +1,6 @@
+---
+---
+
 # OUR NATION'S SECURITY IS IN GOOD HANDS
 ## `ad9adbff5ba61df1526fc10ebf07e13d`
 `Mr. WILSON of South Carolina — 18 September 2008`

@@ -1,3 +1,6 @@
+---
+---
+
 # IRAQ RESOLUTION
 ## `ffc1debfe45b53cb4cce0f23038a9f99`
 `Ms. SNOWE — 12 February 2007`

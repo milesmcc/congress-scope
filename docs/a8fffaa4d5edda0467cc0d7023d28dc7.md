@@ -1,3 +1,6 @@
+---
+---
+
 # JOSHUA OMVIG SUICIDE PREVENTION ACT
 ## `a8fffaa4d5edda0467cc0d7023d28dc7`
 `Mr. REID — 5 September 2007`

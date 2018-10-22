@@ -1,3 +1,6 @@
+---
+---
+
 # LET'S HANG ON TO OUR FREEDOMS
 ## `b25badb7b8ca7fb5aa0edc19257ffb9c`
 `Mr. KAGEN — 17 November 2010`

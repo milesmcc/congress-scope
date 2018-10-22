@@ -1,3 +1,6 @@
+---
+---
+
 # BLUE DOG COALITION
 ## `db7bf2b02ce6f35bfda1b9fd7f3a7f62`
 `Mr. ROSS — 6 February 2007`
